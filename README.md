@@ -1,2 +1,2 @@
 ### Hi, we practice communism here lol
-<sup>this is my new main account which is originally @NIDIABUG.</sup>
+<sup>this is my new account which is originally named [@NIDIABUG](https://github.com/NIDIABUG).</sup>
